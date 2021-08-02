@@ -1,4 +1,3 @@
 # Community Classroom is OP
 
-- Kunal Kushwaha says that this community is amazing.
-- Kunal made this change
+- Sudipta Ghosh says that this community would be the latgest community of the world which provides free education to the world.
